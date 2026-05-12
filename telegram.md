@@ -7,6 +7,23 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 10:49
+---
+
+## pm_afshaa — post 90608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴2 مقام ارشد آمریکایی به فاکس نیوز:
+ترامپ به از سرگیری جنگ با ایران متمایل شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 10:43
 ---
 
