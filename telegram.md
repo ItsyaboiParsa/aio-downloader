@@ -7,6 +7,42 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 01:14
+---
+
+## WithYashar — post 11106
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیتونن از قصد ی جوری پس لرزه اینجاد کنن که نفهمن تست اتمه؟
+</div>
+
+## WithYashar — post 11105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیتونن از قصد ی جوری پس لرزه اینجاد کنن که نفهمن تست اتمه؟
+</div>
+
+## WithYashar — post 11104
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش مقدماتی زمین‌لرزه بزرگی: ۴.۶ ریشتر محل وقوع: مرز استانهای تهران و مازندران - حوالی پرديس تاریخ و زمان وقوع به وقت محلی: 1405/02/22 23:46:07 عمق زمین‌لرزه: 10 کیلومتر @withyashar همچنین اورژانس تهران اعلام کرده در پی طوفان و باد شدید با سرعت ۵۵…
+</div>
+
+## IranIntlTV — post 336889
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336889_1778622240.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت:‌ «ترامپ زمان زیادی ندارد؛ چون با نزدیک شدن به انتخابات کنگره، اگر نتواند جمهوری اسلامی را به‌روشنی شکست دهد یا به اهدافش برسد، ممکن است اکثریت کنگره را به دموکرات‌ها واگذار کند.»
+
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 01:05
 ---
 
