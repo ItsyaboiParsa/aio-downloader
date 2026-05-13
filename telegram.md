@@ -7,6 +7,328 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 12:34
+---
+
+## VahidOOnLine — post 239867
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239867_1778663042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کامران غضنفری، نماینده مجلس شورای اسلامی روز چهارشنبه ۲۳ اردیبهشت گفت آمریکا و اسرائیل می‌خواهند با یک عملیات گسترده، «احتمالا برخی از جزایر ما را در جنوب اشغال کنند. این نماینده مجلس گفت «انتقال سنگین تجهیزات و نیرو به منطقه» با همین هدف انجام می‌شود.
+دونالد ترامپ در هفته‌های نخست جنگ احتمال ورود محدود نیروی نظامی به خاک ایران را رد نکرده بود. اما این سناریو در هفته‌های بعد کمرنگ‌تر شد. با این حال گزارش‌ها حاکی از تجمع گسترده نیروهای آمریکایی در منطقه است.
+غضنفری در گفتگو به خبرآنلاین گفت ما هنوز وسط جنگ هستیم و در همین هفته گذشته «دو عملیات علیه ما انجام دادند و با ناوهایشان به برخی مراکز ما حمله کردند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11131
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فدراسیون فوتبال: امشب مراسم بدرقه تیم ملی فوتبال به جام جهانی، در میان تجمع حامیان حکومت در میدان انقلاب تهران برگزار می‌شود و قرار است در این مراسم از پیراهن تیم نیز رونمایی شود.
+@withyashar
+</div>
+
+## WithYashar — post 11130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبور ابرنفتکش چینی از تنگه هرمز همزمان با سفر ترامپ به این کشور
+داده‌های مارین ترافیک نشان می‌دهد که کشتی یوان هوآ هو صبح چهارشنبه در حال حرکت به سمت شرق از طریق تنگه دیده شده است.
+برخی بر این باور هستند که عبور این کشتی نوعی اقدام مبتنی بر حسن نیت از سوی ترامپ برای جلب نظر شی جین پینگ است.
+@withyashar
+</div>
+
+## WithYashar — post 11129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد سابق موساد: ایران ممکن است ظرف چند ماه از نظر اقتصادی سقوط کند اگر محاصره ادامه یابد
+@withyashar
+</div>
+
+## WithYashar — post 11128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar
+</div>
+
+## WithYashar — post 11127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروژه هارپ یه پروژه برای تغییر در آب و هوا بود طوفان میتونست درست کنه ولی زلزله نظر اکثر کارشناسان بر این بوده که امکانشرو نداشته و فقط تغیید در لایه های جو بوده به هر حال دهه نود ساخته شد و ۲۰۱۴ امریکا گفت پروژه کنسل شده ، ولی تئوری توطئه زیاد هست درباره این پروژه
+@withyashar
+</div>
+
+## mwarmonitor — post 9021
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9021_1778663043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 قیمت ۴۸۶ میلیون تومان ، تصویرِ عریانِ غارتگری در حکومتی است که فساد را از ۱۴۰۰ سال پیش به ارث برده و با برچسب «اسلام ناب محمدی» به خورد ملت می‌دهد. این فرقه با حرامزادگیِ تمام، گوشی ۱۱۰۰ دلاری را به قیمت ۳۰۰۰ دلار در حلقوم مردم می‌چپاند تا هزینه انگل‌وار زندگی خود و مزدورانشان را تأمین کنند. در این لجن‌زارِ جمهوری اسلامی، هر گجت ساده تبدیل به ابزارِ اخاذی شده است؛ دزدانی که با وقاحتِ تمام، جیب مردم را به اسم رجیستری و گمرک می‌زنند تا ثابت کنند در مرام این نظام، چیزی جز چپاول، دروغ و نابودیِ رفاهِ شهروندان وجود ندارد. این ننگِ اقتصادی، نمادِ کاملِ حکومتی است که پایه و اساسش بر حرامی‌گری و مکیدنِ خونِ ملتی بنا شده که تنها جرمشان زندگی زیر سایه‌ی این فرقه‌ی تبهکار است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 90673
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مقام ارشد سابق موساد: ایران ممکن است ظرف چند ماه از نظر اقتصادی سقوط کند اگر محاصره ادامه یابد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90672
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی ارتش اسرائیل: ارتش اسرائیل حمله به زیرساخت‌های سازمان تروریستی حزب‌الله را در چندین منطقه در جنوب لبنان آغاز کرده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4610
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4610_1778663044.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 یک نماینده مجلس:
+دولت میزان خسارت در جنگ را ۲۸.۵ میلیارد دلار اعلام کرده است
+
+میثم ظهوریان، عضو کمیسیون اقتصادی مجلس شواری اسلامی، اعلام کرد گزارش رسمی که دولت مبنا قرار داده و به رهبر جمهوری اسلامی ارائه کرده، میزان خسارت ناشی از جنگ را ۲۸.۵ میلیارد دلار برآورد کرده است.
+او با اشاره به جزئیات این گزارش گفت: «حدود ۱۴ میلیارد دلار از این خسارت مربوط به بخش انرژی است.»
+به گفته عضو کمیسیون اقتصادی مجلس، از این میزان، حدود هشت میلیارد دلار به بخش گاز مربوط می‌شود که در پی آن ظرفیت تولید کاهش یافته است. همچنین بین پنج تا شش میلیارد دلار به بخش پتروشیمی‌ها آسیب وارد شده است.
+میثم ظهوریان افزود: «حدود یک میلیارد دلار از خسارت‌ها نیز به مخازن و خود فرآورده‌ها مربوط است.»
+
+#جنگ۴۰روزه #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## IranIntlTV — post 336948
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336948_1778663045.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، پیش از سفر رسمی به پکن، با اشاره به نابودی توان نظامی جمهوری اسلامی گفت برای مهار حکومت ایران هیچ نیازی به کمک چین ندارد.
+
+گفت‌وگو با هوشنگ حسن‌یاری، کارشناس خاورمیانه و امور نظامی
+@iranintltv
+</div>
+
+## Shin_Persian — post 5986
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_5986_1778663047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek Wed, 13 May 2026 08:39:27 UTC Running Visible again - B-1 training flight! #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- Another B-1 training sortie launching this morning from RAF Fairford (EGVA) is pinging on…
+</div>
+
+## Shin_Persian — post 5985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Wed, 13 May 2026 08:39:27 UTC
+
+Running Visible again - B-1 training flight! #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+Another B-1 training sortie launching this morning from RAF Fairford (EGVA) is pinging on FR24/ADSB.
+
+B-1B "MISS40" 85-0060 #AE6BD1 "Doolittle Raiders"
+B-1B "MISS41" 86-0102 #AE6BEB "Bad Moon Rising" (visible)
+
+@MATA_osint @LHA2709 @Andyyyyrrrr @ArmchairAdml @jamjake01 @vcdgf555
+
+فارسی
+
+دوباره در حالت مرئی در حال اجرا - پرواز آموزشی B-1! #FreeIran‌
+--- عملیات خشم حماسی (EPIC FURY) / پروژه آزادی (Project FREEDOM) ---
+
+یک سورتی پرواز آموزشی دیگر از بمب‌افکن‌های B-1 که امروز صبح از پایگاه هوایی Fairford نیروی هوایی سلطنتی بریتانیا (EGVA) برخاسته است، در FR24/ADSB در حال سیگنال‌دهی است.
+
+B-1B "MISS40" 85-0060 #AE6BD1 "Doolittle Raiders"
+B-1B "MISS41" 86-0102 #AE6BEB "Bad Moon Rising" (مرئی)
+
+@MATA_osint @LHA2709 @Andyyyyrrrr @ArmchairAdml @jamjake01 @vcdgf555
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺توماس راخل کفالت سیاسی پیوند و برنا نعیمی را به عهده گرفت
+
+▪️توماس راخل، نماینده دولت فدرال آلمان در امور آزادی دین و جهان‌بینی و عضو پارلمان آلمان، با پذیرش کفالت سیاسی پیوند نعیمی و برنا نعیمی، خواستار آزادی فوری این دو شهروند بهائی شد.
+
+▪️پیوند و برنا نعیمی، دو ورزشکار جوان از شهروندان بهائی، پس از بازداشت، تحت فشار شدید، بدرفتاری، شکنجه، اعدام نمایشی و تهدید قرار گرفته‌اند تا اعترافاتی علیه خود و یکدیگر امضا کنند؛ اعترافاتی که می‌تواند برای صدور احکام سنگین و حتی اعدام به‌کار گرفته شود.
+
+▪️سازمان بین‌المللی دفاع از حقوق بشر در آلمان، با پیگیری پرونده پیوند و برنا نعیمی، درباره خطر احکام سنگین و بهره‌برداری جمهوری اسلامی از اعترافات اجباری هشدار داده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149521.html
+</div>
+
+## DW_Farsi — post 124639
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124639_1778663047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ۲۰ نماینده کنگره آمریکا: بریتانیا نام سپاه را در فهرست تروریستی قرار دهد
+ 
+گروهی متشکل از ۲۰ عضو جمهوری‌خواه و دموکرات در مجلس نمایندگان ایالات متحده در نامه‌ای به دولت بریتانیا خواستار سرعت بخشیدن به روند تصویب قانونی قرار گرفتن سپاه پاسداران انقلاب اسلامی در فهرست تروریستی این کشور شدند.
+ 
+برد شرمن، عضو حزب دموکرات و عالی‌ترین مقام کمیسیون امور خاورمیانه و شمال آفریقا در مجلس نمایندگان که از مبتکران تهیه این نامه بوده، تصریح کرد: «هر روزی که پارلمان بریتانیا [در تروریستی نامیدن سپاه] تأخیر می‌کند، سپاه پاسداران یک روز دیگر از شعاع و تأثیر کامل تحریم‌های مشترک ما می‌گریزد.»
+ 
+کلودیا تنی، عضو جمهوری‌خواه مجلس نمایندگان و یکی دیگر از مبتکران این نامه، سپاه پاسداران را "یکی از خطرناک‌ترین سازمان‌های تروریستی جهان" خواند که "دستش به خون غیرنظامیان بی‌گناه، آمریکایی‌ها و مخالفان آلوده است".
+ 
+ایالات متحده سپاه پاسداران را در سال ۲۰۱۹ میلادی در فهرست سازمان‌های تروریستی قرار داد. همچنین کانادا در سال ۲۰۲۴، استرالیا در سال ۲۰۲۵ و اتحادیه اروپا در فوریه سال جاری میلادی (۲۰۲۶) دست به این اقدام زدند.
+ 
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14038
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14038_1778663048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه تلویزیونی NDTV تصاویر ماهواره‌ای با وضوح بالا را که از پایگاه هوایی ونتور گرفته شده، منتشر کرده است که ظاهراً گزارش‌های مبنی بر پناه دادن حداقل یک هواپیمای ترابری نظامی C-130H نیروی هوایی ایران در پایگاه هوایی نورخان پاکستان را تأیید می‌کند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14037
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14037_1778663049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمد رضا شهبازی مجری صدا‌وسیما :
+
+💢اگر اینترنت و مستر کارت برایتان مهم است بروید افغانستان و سوریه زندگی کنید ...❗️
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157121
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸داده‌های رهگیری کشتی‌ها نشان می‌دهد یک نفتکش غول‌پیکر چینی حامل دو میلیون بشکه نفت خام عراق، روز چهارشنبه ۲۳ اردیبهشت، در تلاش برای عبور از تنگه هرمز بوده است. 🔸خبرگزاری رویترز روز چهارشنبه ۲۳ اردیبهشت به‌نقل از داده‌های شرکت‌های رهگیری گزارش داد یک نفتکش…
+</div>
+
+## RadioFarda — post 157120
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157120_1778663051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸داده‌های رهگیری کشتی‌ها نشان می‌دهد یک نفتکش غول‌پیکر چینی حامل دو میلیون بشکه نفت خام عراق، روز چهارشنبه ۲۳ اردیبهشت، در تلاش برای عبور از تنگه هرمز بوده است.
+
+🔸خبرگزاری رویترز روز چهارشنبه ۲۳ اردیبهشت به‌نقل از داده‌های شرکت‌های رهگیری گزارش داد یک نفتکش غول‌پیکر چینی حامل دو میلیون بشکه نفت خام عراق در تلاش برای عبور از تنگه هرمز بوده است.
+
+🔸بر اساس داده‌های شرکت‌های «ال‌اس‌ای‌جی» و «کپلر»، نفتکش «یوآن هوا هو» از نزدیکی جزیره لارک ایران عبور کرده و در بخش شرقی تنگه هرمز به سمت جنوب در حال حرکت است.
+
+@RadioFarda
+</div>
+
+## Hranews — post 112921
+
+<div align="center">
+  <img src="telegram/content/Hranews_112921_1778663052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت‌بلاکس، که محدودیت دسترسی به اینترنت در جهان را رصد می‌کند، اعلام کرد که قطع اینترنت در ایران اکنون از ۱۷۷۶ ساعت گذشته و وارد هفتاد و پنجمین روز خود شده است. این نهاد تاکید کرد که این اقدام سانسور دیجیتال، به سودجویی و کاهش امنیت دیجیتال منجر شده و طرح‌های موسوم به «اینترنت پرو» با حمایت حکومت و فهرست سفید گزینشی، زمینه‌ساز نظارت، فساد و کلاهبرداری شده‌اند.
+#قطع_اینترنت
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 112920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیدیاسین حسن‌زاده، دانشجوی دانشگاه تهران آزاد شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– سیدیاسین حسن‌زاده، دبیر انجمن اسلامی دانشجویان دانشگاه تهران که روز گذشته توسط ماموران امنیتی بازداشت شده بود، آزاد شد.
+
+ادامه مطلب
+
+#سیدیاسین_حسن‌زاده
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 119680
+
+<div align="center">
+  <a href="telegram/content/alonews_119680_1778663053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تهران تا یک‌شنبه خنک می‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119679
+
+<div align="center">
+  <a href="telegram/content/alonews_119679_1778663053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر رفاه: داریم تمام وقت تلاش میکنیم که مبلغ کالابرگ رو افزایش بدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119678
+
+<div align="center">
+  <a href="telegram/content/alonews_119678_1778663053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفتگوی تلفنی وزرای خارجه ایران و جمهوری آذربایجان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 12:13
 ---
 
